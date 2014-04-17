@@ -4,11 +4,27 @@ LACBC Board Meeting Minutes
 February 19, 2014
 6:30 PM, MALDEF Building Mezzanine
 
-Board Present: Alex Amerri, Herbie Huff, Kevin Hopps, Carrie Ungerman, Steve Boyd, Trent Strong, Lynn Ingram (Arriving at 7:50 PM), Jim Pocras, Caryn Howard, April Economides, Lourdes Morales, Ted Rogers, Greg Laemmle (Arriving at 7:56 PM) (n=9)
+Board Present: 
+ - Alex Amerri
+ - Herbie Huff
+ - Kevin Hopps
+ - Carrie Ungerman
+ - Steve Boyd
+ - Trent Strong
+ - Lynn Ingram (Arriving at 7:50 PM)
+ - Jim Pocras
+ - Caryn Howard
+ - April Economides
+ - Lourdes Morales
+ - Ted Rogers
+ - Greg Laemmle (Arriving at 7:56 PM)
 
 Board Absent:
 
-Staff Present: Jennifer Klausner, Eric Bruins, Shannon Muir
+Staff Present: 
+ - Jennifer Klausner
+ - Eric Bruins
+ - Shannon Muir
 
 ## Welcome, Introductions
 
