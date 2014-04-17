@@ -122,7 +122,7 @@ Staff Present: Jennifer Klausner, Eric Bruins, Shannon Muir
 
 ## Formation of Ad-Hoc Committee on Policies of Association (7:40 PM)
 
-- Alex: Brief background on event that benfits LACBC organized by individual involed in hit-and-run accident.  Ride starts on property of a religious organization (Church of Scientology) and organizer intends to include a publication associated with Church of Scientology in gift bag distributed at event.  Some members of development committee brought up the potential issue that it may appear that LACBC is somehow affiliated or partnered with Church of Scientology.
+- Alex: Brief background on event that benefits LACBC organized by individual involed in hit-and-run accident.  Ride starts on property of a religious organization (Church of Scientology) and organizer intends to include a publication associated with Church of Scientology in gift bag distributed at event.  Some members of development committee brought up the potential issue that it may appear that LACBC is somehow affiliated or partnered with Church of Scientology.
 
 - Alex: Request for ad-hoc policy committee to discuss and propose policy for assocation / affiliation with external organizations rather than dealing with this issue as an isolated incident.  Decision should be made before April 1, 2014.
 
@@ -146,7 +146,7 @@ Staff Present: Jennifer Klausner, Eric Bruins, Shannon Muir
 
 - April: Support for Lourdes's recommendation.
 
-- Herbie: Express view that LACBC has historically been a "big tent" organization, and should continue to operate as such.  Suggestion to frame policy conversation as "ways and means"
+- Herbie: Express view that LACBC has historically been a "big tent" organization, and should continue to operate as such.  Suggestion to frame policy conversation as "ways and means".
 
 - Greg: Volunteered to join policy committee.
 
