@@ -102,7 +102,7 @@ Staff Present: Jennifer Klausner, Eric Bruins, Kelly Martin, Colin Bogart
   Stephanie: You can build a menu of sponsorship opportunties or services that could be packaged with
   corporate membership.
 
-  *ACTION ITEM* (Development): Would like a presentation or research on San Diego and Silicon Valley corporate membership programs.
+  **ACTION ITEM** (Development): Would like a presentation or research on San Diego and Silicon Valley corporate membership programs.
 
   Herbie:  We have end of year organizational review and strategic planning which are opportunities
 
@@ -149,13 +149,13 @@ Staff Present: Jennifer Klausner, Eric Bruins, Kelly Martin, Colin Bogart
   Jen: Great idea and a functional area where staff is lacking.  Forming a technology committee is a great idea
   to organize.
 
-  *ACTION ITEM*: Formation of a technology committee with Doug, Colin, Trent, and Carol involved.  Committe will
+  **ACTION ITEM**: Formation of a technology committee with Doug, Colin, Trent, and Carol involved.  Committe will
   be responsible for gathering requirements and information from organization, both functional and contextual.  Email
   a board/staff list to gather interest and then establish a meeting schedule.
 
 ## Remarks, Closed Session
 
-  *ACTION ITEM*: Double check language in newsletter to make sure that Laemmle Foundation sponsorship
+  **ACTION ITEM**: Double check language in newsletter to make sure that Laemmle Foundation sponsorship
   does not preclude additional donation or support.
 
-  *ACTION ITEM*: Calendar a board meeting for Dec. 17.
+  **ACTION ITEM**: Calendar a board meeting for Dec. 17.
