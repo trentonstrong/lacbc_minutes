@@ -1,7 +1,7 @@
 LACBC Board Meeting Minutes
 ===========================
 
-March 19, 2014
+September 17, 2014
 6:30 PM, MALDEF Building Mezzanine
 
 Board Present: Cynthia Rose, Greg Laemmle, Steve Boyd, Carrie Ungerman, Douglas John,
